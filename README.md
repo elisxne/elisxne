@@ -16,7 +16,7 @@
 </p>
 
 <p align="center">
-  <a href=https://cemetery-girl.straw.page/>strawpage</a>⠀ ☆⠀ <a href=https://vixxie.atabook.org/>atabook</a>⠀ ☆⠀ <a href=https://en.pronouns.page/@v.1x.en>prns.page</a>
+  <a href=https://cemetery-girl.straw.page/>strawpage</a>⠀ ☆⠀ <a href=https://vixxie.atabook.org/>atabook</a>⠀ ☆⠀ <a href=https://en.pronouns.page/@tuxkitty>prns.page</a>
 </p>
 
 <p align="center">
