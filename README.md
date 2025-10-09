@@ -1,4 +1,6 @@
-<img width="1024" height="1024" alt="image" src="https://github.com/user-attachments/assets/ec3afdb0-c540-427e-8540-a1f35e91b6ee" />
+<img width="1024" height="1024" alt="image" src="https://github.com/user-attachments/assets/da48dc8c-c5e4-4633-bfb8-1b21178abf1b" />
+
+
 
 
 
@@ -21,7 +23,7 @@
 
 
 <p align="center">
-   ${\textsf{\color{pink} ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢}}$<br>
+   ${\textsf{\color{#D5C2B5} ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢}}$<br>
 </p>
 
 <p align="center">
@@ -29,19 +31,19 @@
 </p>
 
 <p align="center">
-  ${\textsf{\color{pink} w2i⠀⠀c+h hvy enc⠀⠀ships int}}$<br>
+  ${\textsf{\color{#D5C2B5} w2i⠀⠀c+h hvy enc⠀⠀ships int}}$<br>
 </p>
 <p align="center">
-  ${\textsf{\color{pink} ⎝ always trying new styles}}$<br>
+  ${\textsf{\color{#D5C2B5} ⎝ always trying new styles}}$<br>
 </p>
 <p align="center">
-  ${\textsf{\color{pink} lmk if it's similar 2 yours! ⎠}}$<br>
-</p>
-
-<p align="center">
-  ${\textsf{\color{pink} ────────୨ৎ────────}}$<br>
+  ${\textsf{\color{#D5C2B5} lmk if it's similar 2 yours! ⎠}}$<br>
 </p>
 
 <p align="center">
-  ${\textsf{\color{pink} ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣}}$<br>
+  ${\textsf{\color{#D5C2B5} ─────────────୨ৎ─────────────}}$<br>
+</p>
+
+<p align="center">
+  ${\textsf{\color{#D5C2B5} ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣}}$<br>
 </p>
