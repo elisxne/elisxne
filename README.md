@@ -4,10 +4,10 @@
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=plastic&label=clickbaited+⚠︎)
 
 <p align="center">
-  ${\textsf{\color{#AE1901} elis⠀⠀/⠀⠀tux⠀⠀⠀⠀15yo⠀⠀taken x2}}$<br>
+  ${\textsf{\color{#EC5689} elis⠀⠀/⠀⠀tux⠀⠀⠀⠀15yo⠀⠀taken x2}}$<br>
 </p>
 <p align="center">
-  ${\textsf{\color{#AE1901} w2i⠀⠀+⠀⠀c*h enc⠀⠀⠀⠀int freely !}}$<br>
+  ${\textsf{\color{#EC5689} w2i⠀⠀+⠀⠀c*h enc⠀⠀⠀⠀int freely !}}$<br>
 </p>
 
 <p align="center">
