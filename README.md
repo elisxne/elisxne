@@ -3,12 +3,10 @@
 
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=plastic&label=clickbaited+⚠︎)
 
-<p align="center">
-  ${\textsf{\color{#EC5689} elis⠀⠀/⠀⠀skittles⠀⠀⠀⠀16yo⠀⠀taken .qp}}$<br>
-</p>
-<p align="center">
-  ${\textsf{\color{#EC5689} w2i⠀⠀+⠀⠀c*h enc⠀⠀⠀⠀int freely !}}$<br>
-</p>
+
+
+<img width="1199" height="1124" alt="image" src="https://github.com/user-attachments/assets/92b564db-16d4-4e15-bf8f-d3c6a2beb51e" />
+
 
 <p align="center">
   <a href=https://cemetery-girl.straw.page/>s͢t͢r͢a͢w͢page</a>⠀ ⠀ ⠀<a href=https://vixxie.atabook.org/>a͢t͢a͢book</a> ⠀ ⠀ <a href=https://en.pronouns.page/@tuxkitty>p͢r͢n͢s͢.page</a>
