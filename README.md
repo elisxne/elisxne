@@ -12,5 +12,6 @@
   straw wip⠀ ⠀ ⠀<a href=https://vixxie.atabook.org/>a͢t͢a͢book</a> ⠀ ⠀ <a href=https://en.pronouns.page/@tuxkitty>p͢r͢n͢s͢.page</a>
 </p>
 
- ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/9a40c74d-6d9e-4304-b863-9afe81744722" />
+ ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀![image](https://github.com/user-attachments/assets/a0b52f77-8f15-4a9b-90f5-e20e34b35b96)
+
 
