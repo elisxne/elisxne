@@ -15,7 +15,7 @@
 </p>
 
  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  
-⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀![GrieferTransparentGIF](https://github.com/user-attachments/assets/4e53c7d9-5d9a-40ab-aa75-1cbb82ec8b93)
+⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀![GrieferTransparentGIF](https://github.com/user-attachments/assets/4e53c7d9-5d9a-40ab-aa75-1cbb82ec8b93)
 
 
 
