@@ -8,12 +8,12 @@
 
 
 <p align="center">
-w2i preferred ⠀ ⠀c*h freely
+w2i preferred ⠀ ﹒⠀ ⠀c*h freely
 </p>
 
 
 <p align="center">
-  <a href=https://pastry.diy/elisxne>pastry.diy</a>⠀ ⠀ ⠀<a href=https://vixxie.atabook.org/>atabook</a> ⠀ ⠀ <a href=https://en.pronouns.page/@tuxkitty>prns.page</a>
+  <a href=https://pastry.diy/elisxne>pastry.diy</a>⠀ ⠀ ⠀<a href=https://vixxie.atabook.org/>atabook</a> ⠀ ⠀ <a href=https://en.pronouns.page/@tuxkitty>prns.page</a> ⠀ ⠀ <a href=https://guns.lol/elisxne>guns.lol</a>
 </p>
 
  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  
