@@ -21,7 +21,9 @@ ${\textsf{\color{#FFFFFF} w2i preferred ⠀ ﹒⠀ ⠀c*h freely}}$
 
 
 
-
+<p align="center">
+${\textsf{\color{#FFFFFF} originally known as :⠀@cemetery-girl ⠀@etherealiity ⠀@ALTERROSE ⠀@A5TROLOGY}}$
+</p>
  
 
 
