@@ -17,7 +17,8 @@ ${\textsf{\color{#FFFFFF} w2i preferred ⠀ ﹒⠀ ⠀c*h freely}}$
 </p>
 
  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  
-⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀![GrieferTransparentGIF](https://github.com/user-attachments/assets/4e53c7d9-5d9a-40ab-aa75-1cbb82ec8b93)
+⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀![Kookoo_Clock_full](https://github.com/user-attachments/assets/2a4358f4-12ec-4ed0-a08f-8f8ebe6c2817)
+
 
 
 
