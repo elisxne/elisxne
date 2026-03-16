@@ -17,7 +17,7 @@ ${\textsf{\color{#FFFFFF} w2i preferred ⠀ ﹒⠀ ⠀c*h freely}}$
 </p>
 
  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  
-⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ![Sinnersitting](https://github.com/user-attachments/assets/5cc43d44-3ed7-4d7c-9b10-e3956e701bea)
+⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀![Sinnersitting](https://github.com/user-attachments/assets/5cc43d44-3ed7-4d7c-9b10-e3956e701bea)
 
 
 
