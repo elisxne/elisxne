@@ -17,7 +17,8 @@ ${\textsf{\color{#FFFFFF} w2i preferred ⠀ ﹒⠀ ⠀c*h freely}}$
 </p>
 
  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  
-⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ![Kookoo_Clock_full](https://github.com/user-attachments/assets/2a4358f4-12ec-4ed0-a08f-8f8ebe6c2817)
+⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ![Sinnersitting](https://github.com/user-attachments/assets/5cc43d44-3ed7-4d7c-9b10-e3956e701bea)
+
 
 
 
