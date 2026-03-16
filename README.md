@@ -3,7 +3,7 @@
 
 
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=plastic&label=griefed+:&base=676767)
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=plastic&label=sinners+:&base=676767)
 
 
 
