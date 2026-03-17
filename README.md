@@ -13,7 +13,7 @@ ${\textsf{\color{#FFFFFF} w2i preferred ⠀ ﹒⠀ ⠀c*h freely}}$
 
 
 <p align="center">
-  straw wip⠀ ⠀<a href=https://vixxie.atabook.org/>atabook</a> ⠀ <a href=https://en.pronouns.page/@tuxkitty>prns.page</a> ⠀ <a href=https://guns.lol/elisxne>guns.lol</a>
+  <a href=https://rentry.co/tuxkitty/>rentry</a>⠀ ⠀<a href=https://vixxie.atabook.org/>atabook</a> ⠀ <a href=https://en.pronouns.page/@tuxkitty>prns.page</a> ⠀ <a href=https://guns.lol/elisxne>guns.lol</a>
 </p>
 
  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  
