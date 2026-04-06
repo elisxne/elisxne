@@ -17,4 +17,4 @@ ${\textsf{\color{#FFFFFF} w2i preferred ⠀ ﹒⠀ ⠀c*h freely}}$
 </p>
 
  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  
-⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀ ![GrieferTransparentGIF](https://github.com/user-attachments/assets/da71e9ef-9407-449b-9b32-8f9c3515df87)
+⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀  ⠀  ⠀  ⠀ ![GrieferTransparentGIF](https://github.com/user-attachments/assets/da71e9ef-9407-449b-9b32-8f9c3515df87)
