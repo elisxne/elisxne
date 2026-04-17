@@ -1,9 +1,15 @@
+<table border="0">
+  <tr align="center">
+    <td style="vertical-align: middle;">
+      <p><b>
+
+<p align="center">
+<div align="center">
 
 
 
 
-
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=plastic&label=griefed+:&base=676767)
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=plastic&label=bruh+idk+:&base=676767)
 
 
 
@@ -17,4 +23,13 @@ ${\textsf{\color{#FFFFFF} w2i preferred ⠀ ﹒⠀ ⠀c*h freely}}$
 </p>
 
  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  
-⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ ![GrieferTransparentGIF](https://github.com/user-attachments/assets/da71e9ef-9407-449b-9b32-8f9c3515df87)
+⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ <img width="2048" height="1536" alt="image" src="https://github.com/user-attachments/assets/deb24ce6-5c65-4dd0-9fda-fca8a19b9804" />
+
+
+
+<div align="center">
+
+</div></b></p>
+    </td>
+  </tr>
+</table>
