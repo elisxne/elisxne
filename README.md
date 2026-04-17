@@ -13,7 +13,7 @@
 
 
 <p align="center">
-${\textsf{\color{#FFFFFF} w2i preferred ⠀ ﹒⠀ ⠀c*h freely}}$
+${\textsf{\color{#FFFFFF} w2i preferred ⠀ ✦⠀ ⠀c*h freely}}$
 </p>
 
 
