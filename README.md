@@ -8,8 +8,7 @@
 
 
 
-
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=plastic&label=bruh+idk+:&base=676767)
+![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=plastic&label=bruh+idk+:&base=676767)
 
 
 
