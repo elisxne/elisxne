@@ -13,6 +13,9 @@
 
 
 <p align="center">
+${\textsf{\color{#FFFFFF} e̲l̲i̲s / tux⠀⠀16yo⠀⠀any prns}}$
+</p>
+<p align="center">
 ${\textsf{\color{#FFFFFF} w2i preferred ⠀ ✦⠀ ⠀c*h freely}}$
 </p>
 
