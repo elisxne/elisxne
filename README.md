@@ -13,10 +13,10 @@
 
 
 <p align="center">
-${\textsf{\color{#FFFFFF} e̲l̲i̲s / tux⠀⠀16yo⠀⠀any prns}}$
+${\textsf{\color{#a4a4a4} e̲l̲i̲s / tux⠀⠀16yo⠀⠀any prns}}$
 </p>
 <p align="center">
-${\textsf{\color{#FFFFFF} w2i preferred ⠀ ✦⠀ ⠀c*h freely}}$
+${\textsf{\color{#a4a4a4} w2i preferred ⠀ ✦⠀ ⠀c*h freely}}$
 </p>
 
 
