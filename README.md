@@ -25,7 +25,8 @@ ${\textsf{\color{#a4a4a4} w2i preferred ⠀ ✦⠀ ⠀c*h freely}}$
 </p>
 
  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  
-⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ <img width="2048" height="1536" alt="image" src="https://github.com/user-attachments/assets/aa71f4a6-ed1d-48f9-86bb-cac97774aa89" />
+⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ <img width="430" height="430" alt="tumblr_c31a26486f317ac902badb04fca07752_f3406477_500" src="https://github.com/user-attachments/assets/69f696ac-ef38-447d-872e-16218c7fadec" />
+
 
 
 
