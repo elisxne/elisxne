@@ -21,7 +21,7 @@ ${\textsf{\color{#a4a4a4} w2i preferred ⠀ ✦⠀ ⠀c*h freely}}$
 
 
 <p align="center">
-  <a href=https://rentry.co/tuxkitty/>001</a>⠀  <a href=https://vixxie.atabook.org/>002</a> ⠀<a href=https://en.pronouns.page/@tuxkitty>003</a> ⠀ <a href=https://guns.lol/elisxne>004</a>
+  <a href=https://elisxne.straw.page//>001</a>⠀  <a href=https://vixxie.atabook.org/>002</a> ⠀<a href=https://en.pronouns.page/@tuxkitty>003</a> ⠀ <a href=https://guns.lol/elisxne>004</a>
 </p>
 
  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  
