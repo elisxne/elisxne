@@ -6,6 +6,10 @@
 <p align="center">
 <div align="center">
 
+<img width="1250" height="44" alt="Untitled315_20260508165032" src="https://github.com/user-attachments/assets/0ee43f0a-cf1c-4af5-bbce-83081be19b8e" />
+
+
+
 
 
 ![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=plastic&label=griefed+:&base=676767)
@@ -42,6 +46,10 @@ ${\textsf{\color{#a4a4a4} w2i preferred ⠀ ✦⠀ ⠀c*h freely}}$
 
 
 
+
+
+
+<img width="1250" height="44" alt="Untitled315_20260508165032" src="https://github.com/user-attachments/assets/cd94aeca-279e-47dc-aa68-cc75662d77c0" />
 
 
 <div align="center">
