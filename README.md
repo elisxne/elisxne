@@ -36,6 +36,7 @@ ${\textsf{\color{#a4a4a4} w2i preferred ⠀ ✦⠀ ⠀c*h freely}}$
  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  
 ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ 
 
+<img width="736" height="605" alt="Untitled299_20260508163749" src="https://github.com/user-attachments/assets/52bd30a6-c399-4e9d-9076-95bdd85fd41a" />
 
 
 
