@@ -20,13 +20,17 @@ ${\textsf{\color{#a4a4a4} w2i preferred ⠀ ✦⠀ ⠀c*h freely}}$
 </p>
 
 
+
+
+
 <p align="center">
-  ${\textsf{\color{#a4a4a4} shoutouts:⠀}}$ <a href=https://github.com/PAlNTER>tea</a> ⠀<a href=https://github.com/DreamyStarr>star</a> ⠀<a href=https://github.com/DesiredDreams>dad</a> ⠀<a href=https://github.com/forgottenfeelings>mio</a> ⠀<a href=https://github.com/syzxuz>syu</a> ⠀
+  ──  <a href=https://elisxne.straw.page/>001</a>⠀     <a href=https://vixxie.atabook.org/>002</a> ⠀   <a href=https://en.pronouns.page/@tuxkitty>003</a> ⠀    <a href=https://guns.lol/elisxne>004</a>  ──
 </p>
 
 
+
 <p align="center">
-  <a href=https://elisxne.straw.page/>001</a>⠀     <a href=https://vixxie.atabook.org/>002</a> ⠀   <a href=https://en.pronouns.page/@tuxkitty>003</a> ⠀    <a href=https://guns.lol/elisxne>004</a>
+  ${\textsf{\color{#a4a4a4} shoutouts:⠀}}$ <a href=https://github.com/PAlNTER>tea</a> ⠀<a href=https://github.com/DreamyStarr>star</a> ⠀<a href=https://github.com/DesiredDreams>dad</a> ⠀<a href=https://github.com/forgottenfeelings>mio</a> ⠀<a href=https://github.com/syzxuz>syu</a> ⠀
 </p>
 
  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  
