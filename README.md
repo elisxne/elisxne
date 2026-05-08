@@ -6,7 +6,11 @@
 <p align="center">
 <div align="center">
 
-<img width="1250" height="44" alt="Untitled315_20260508165032" src="https://github.com/user-attachments/assets/0ee43f0a-cf1c-4af5-bbce-83081be19b8e" />
+<img width="1036" height="54" alt="Untitled316_20260508165400" src="https://github.com/user-attachments/assets/0b51ff50-2ee9-4541-9f63-3f897b672195" />
+
+
+
+
 
 
 
@@ -49,7 +53,8 @@ ${\textsf{\color{#a4a4a4} w2i preferred ⠀ ✦⠀ ⠀c*h freely}}$
 
 
 
-<img width="1250" height="44" alt="Untitled315_20260508165032" src="https://github.com/user-attachments/assets/cd94aeca-279e-47dc-aa68-cc75662d77c0" />
+<img width="1036" height="54" alt="Untitled316_20260508165404" src="https://github.com/user-attachments/assets/2012459e-2459-4b32-9b3f-476594212d3b" />
+
 
 
 <div align="center">
