@@ -6,7 +6,7 @@
 <p align="center">
 <div align="center">
 
-<img width="1036" height="54" alt="Untitled316_20260508165400" src="https://github.com/user-attachments/assets/0b51ff50-2ee9-4541-9f63-3f897b672195" />
+
 
 
 
@@ -44,7 +44,6 @@ ${\textsf{\color{#a4a4a4} w2i preferred ⠀ ✦⠀ ⠀c*h freely}}$
  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  
 ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ 
 
-<img width="736" height="605" alt="Untitled299_20260508163749" src="https://github.com/user-attachments/assets/52bd30a6-c399-4e9d-9076-95bdd85fd41a" />
 
 
 
@@ -53,7 +52,8 @@ ${\textsf{\color{#a4a4a4} w2i preferred ⠀ ✦⠀ ⠀c*h freely}}$
 
 
 
-<img width="1036" height="54" alt="Untitled316_20260508165404" src="https://github.com/user-attachments/assets/2012459e-2459-4b32-9b3f-476594212d3b" />
+
+
 
 
 
