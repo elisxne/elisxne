@@ -6,16 +6,6 @@
 <p align="center">
 <div align="center">
 
-
-
-
-
-
-
-
-
-
-
 ![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=plastic&label=griefed+:&base=676767)
 
 
@@ -40,23 +30,6 @@ ${\textsf{\color{#a4a4a4} w2i preferred ⠀ ✦⠀ ⠀c*h freely}}$
 <p align="center">
   ${\textsf{\color{#a4a4a4} shoutouts:⠀}}$ <a href=https://github.com/PAlNTER>tea</a> ⠀<a href=https://github.com/DreamyStarr>star</a> ⠀<a href=https://github.com/DesiredDreams>dad</a> ⠀<a href=https://github.com/forgottenfeelings>mio</a> ⠀<a href=https://github.com/syzxuz>syu</a> ⠀
 </p>
-
- ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  
-⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 <div align="center">
 
