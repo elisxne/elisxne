@@ -33,7 +33,8 @@ ${\textsf{\color{#a4a4a4} w2i preferred ⠀ ✦⠀ ⠀c*h freely}}$
 
 <div align="center">
 
-<img width="1200" height="900" alt="image" src="https://github.com/user-attachments/assets/f9625043-a792-48a4-a4ab-5b0663c3dba3" />
+<img width="588" height="454" alt="image" src="https://github.com/user-attachments/assets/900632c4-a94f-48d0-b899-daad982b4546" />
+
 
 
 
