@@ -28,7 +28,7 @@ ${\textsf{\color{#a4a4a4} w2i preferred ⠀ ✦⠀ ⠀c*h freely}}$
 
 
 <p align="center">
-  ${\textsf{\color{#a4a4a4} shoutouts:⠀}}$ <a href=https://github.com/PAlNTER>tea</a> ⠀<a href=https://github.com/DreamyStarr>star</a> ⠀<a href=https://github.com/DesiredDreams>dad</a> ⠀<a href=https://github.com/forgottenfeelings>mio</a> ⠀<a href=https://github.com/syzxuz>syu</a> ⠀
+  ${\textsf{\color{#a4a4a4} ♡゙:⠀}}$ <a href=https://github.com/PAlNTER>tea</a> ⠀<a href=https://github.com/DreamyStarr>star</a> ⠀<a href=https://github.com/DesiredDreams>dad</a> ⠀<a href=https://github.com/forgottenfeelings>mio</a> ⠀<a href=https://github.com/syzxuz>syu</a> ⠀
 </p>
 
 <div align="center">
