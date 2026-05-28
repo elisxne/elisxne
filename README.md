@@ -28,12 +28,12 @@ ${\textsf{\color{#a4a4a4} w2i preferred ⠀ ✦⠀ ⠀c*h freely}}$
 
 
 <p align="center">
-  ${\textsf{\color{#a4a4a4} ♡゙:⠀}}$ <a href=https://github.com/PAlNTER>tea</a> ⠀<a href=https://github.com/DreamyStarr>star</a> ⠀<a href=https://github.com/DesiredDreams>dad</a> ⠀<a href=https://github.com/forgottenfeelings>mio</a> ⠀<a href=https://github.com/syzxuz>syu</a> ⠀
+  ${\textsf{\color{#a4a4a4} ♡゙:⠀}}$ <a href=https://github.com/PAlNTER>tea</a> ⠀<a href=https://github.com/BunnyCoded>star</a> ⠀<a href=https://github.com/DesiredDreams>dad</a> ⠀<a href=https://github.com/forgottenfeelings>mio</a> ⠀<a href=https://github.com/syzxuz>syu</a> ⠀
 </p>
 
 <div align="center">
 
-<img width="588" height="454" alt="image" src="https://github.com/user-attachments/assets/900632c4-a94f-48d0-b899-daad982b4546" />
+.wip
 
 
 
