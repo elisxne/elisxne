@@ -3,7 +3,8 @@
     <td style="vertical-align: middle;">
       <p><b>
 
-<img width="900" height="759" alt="image" src="https://github.com/user-attachments/assets/0980f3c4-6e35-4bea-ad9f-227c29498702" />
+<img width="498" height="282" alt="image" src="https://github.com/user-attachments/assets/baa3967d-7e9b-480e-9f1b-da0c91373435" />
+
 
 
 <p align="center">
