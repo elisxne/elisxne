@@ -3,26 +3,11 @@
     <td style="vertical-align: middle;">
       <p><b>
 
-<p align="center">
-<div align="center">
-
-![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=plastic&label=griefed+:&base=676767)
-
+<img width="900" height="759" alt="image" src="https://github.com/user-attachments/assets/0980f3c4-6e35-4bea-ad9f-227c29498702" />
 
 
 <p align="center">
-${\textsf{\color{#a4a4a4} e̲l̲i̲s / tux⠀⠀16yo⠀⠀any prns}}$
-</p>
-<p align="center">
-${\textsf{\color{#a4a4a4} w2i preferred ⠀ ✦⠀ ⠀c*h freely}}$
-</p>
-
-
-
-
-
-<p align="center">
-  ${\textsf{\color{#a4a4a4}──}}$  <a href=https://elisxne.straw.page/>001</a>⠀     <a href=https://vixxie.atabook.org/>002</a> ⠀   <a href=https://en.pronouns.page/@tuxkitty>003</a> ⠀    <a href=https://guns.lol/elisxne>004</a>  ${\textsf{\color{#a4a4a4}──}}$
+  <a href=https://elisxne.straw.page/>001</a>⠀     <a href=https://vixxie.atabook.org/>002</a> ⠀   <a href=https://en.pronouns.page/@tuxkitty>003</a> ⠀    <a href=https://guns.lol/elisxne>004</a>
 </p>
 
 
@@ -31,13 +16,11 @@ ${\textsf{\color{#a4a4a4} w2i preferred ⠀ ✦⠀ ⠀c*h freely}}$
   ${\textsf{\color{#a4a4a4} ♡゙:⠀}}$ <a href=https://github.com/PAlNTER>tea</a> ⠀<a href=https://github.com/BunnyCoded>star</a> ⠀<a href=https://github.com/DesiredDreams>dad</a> ⠀<a href=https://github.com/forgottenfeelings>mio</a> ⠀<a href=https://github.com/syzxuz>syu</a> ⠀
 </p>
 
+<p align="center">
 <div align="center">
 
-<img width="2048" height="2048" alt="image" src="https://github.com/user-attachments/assets/447c289b-b825-4f78-8c85-fd96b2726d02" />
-
-
-
-
+![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=plastic&label=griefed+:&base=676767)
+<div align="center">
 
 
 </div></b></p>
