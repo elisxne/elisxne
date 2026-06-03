@@ -1,7 +1,16 @@
-　　　　　　　　　　　　　　　　　　　　　　　　　[![Typing SVG](https://readme-typing-svg.demolab.com?font=Slackey&pause=1000&color=FFFFFF&width=435&lines=come+on+,+crybaby!)](https://git.io/typing-svg)
+　　　　　　　　　　　　　　　[![Typing SVG](https://readme-typing-svg.demolab.com?font=Meow+Script&pause=3000&color=FFFFFF&width=435&lines="+i've+done+the+math+,+there's+no+solution+.+.+.)](https://git.io/typing-svg)
+<p align="center">
+${\textsf{\color{#FFFFFF} 𝖾𝗅𝗂𝗌⠀⠀⠀⠀ₒᵣ⠀⠀⠀⠀𝗍𝗎𝗑⠀⠀⠀⠀𝗅𝗏𝗅16⠀⠀⠀₊⠀⠀⠀𝗂𝗌𝖿𝗉}}$
+</p>
+<p align="center">
+<a href=https://vixxie.atabook.org>新𝖻𝗈𝗈𝗄</a>⠀⠀⠀⠀⠀⠀<a href=https://elisxne.straw.page/>𝗌𝗍𝗋𝖺𝗐</a>⠀⠀⠀⠀⠀⠀<a href=https://en.pronouns.page/@tuxkitty>𝗉𝗋𝗇𝗌</a>
+</p>
+<p align="center">
+${\textsf{\color{#FFFFFF} 𝗐2𝗂 𝗉𝗋𝖾𝖿𝖾𝗋𝗋𝖾𝖽⠀⠀⠀﹒⠀⠀⠀𝖼*𝗁 𝖿𝗋𝖾𝖾𝗅𝗒}}$
+</p>
+<p align="center">
+<div align="center">
 
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　　sɪɢɴ ᴍʏ <a href=https://vixxie.atabook.org>新ʙᴏᴏᴋ</a>
-                         
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　　ᴡ2ɪ , ᴄ*ʜ ғʀᴇᴇʟʏ
+![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=plastic&label=griefed+:&base=676767)
 
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=plastic&label=griefed+:&base=676767)
+　　　　　　　　　　　　[![Typing SVG](https://readme-typing-svg.demolab.com?font=Meow+Script&pause=3000&color=FFFFFF&width=435&lines=+⠀+⠀+⠀+⠀+⠀+⠀+⠀+⠀+.+.+.+we'll+never+last+.+")](https://git.io/typing-svg)
