@@ -6,7 +6,7 @@
 ${\textsf{\color{#FFFFFF} 𝖾𝗅𝗂𝗌⠀⠀⠀⠀ₒᵣ⠀⠀⠀⠀𝗍𝗎𝗑⠀⠀⠀⠀𝗅𝗏𝗅16⠀⠀⠀₊⠀⠀⠀𝗂𝗌𝖿𝗉}}$
 </p>
 <p align="center">
-<a href=https://vixxie.atabook.org>新𝖻𝗈𝗈𝗄</a>⠀⠀⠀⠀⠀⠀<a href=https://elisxne.straw.page/>𝗌𝗍𝗋𝖺𝗐</a>⠀⠀⠀⠀⠀⠀<a href=https://en.pronouns.page/@tuxkitty>𝗉𝗋𝗇𝗌</a>
+<a href=https://vixxie.atabook.org>新𝖻𝗈𝗈𝗄</a>⠀⠀⠀⠀⠀⠀<a href=https://rentry.co/tuxkitty>𝗋𝖾𝗇𝗍𝗋𝗒</a>⠀⠀⠀⠀⠀⠀<a href=https://en.pronouns.page/@tuxkitty>𝗉𝗋𝗇𝗌</a>
 </p>
 <p align="center">
 ${\textsf{\color{#FFFFFF} 𝗐2𝗂 𝗉𝗋𝖾𝖿𝖾𝗋𝗋𝖾𝖽⠀⠀⠀﹒⠀⠀⠀𝖼*𝗁 𝖿𝗋𝖾𝖾𝗅𝗒}}$
