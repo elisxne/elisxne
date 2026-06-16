@@ -1,15 +1,15 @@
 <img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/adbe5a4f-75be-4ee7-99ba-65051f7564fa" />
 
 
-　　　　　　　　　　　　　　　[![Typing SVG](https://readme-typing-svg.demolab.com?font=Meow+Script&pause=3000&color=676767&width=435&lines="+i've+done+the+math+,+there's+no+solution+.+.+.)](https://git.io/typing-svg)
+　　　　　　　　　　　　　　　[![Typing SVG](https://readme-typing-svg.demolab.com?font=Meow+Script&pause=3000&color=70538a&width=435&lines="+i've+done+the+math+,+there's+no+solution+.+.+.)](https://git.io/typing-svg)
 <p align="center">
-${\textsf{\color{#676767} 𝖾𝗅𝗂𝗌⠀⠀⠀⠀ₒᵣ⠀⠀⠀⠀𝗍𝗎𝗑⠀⠀⠀⠀𝗅𝗏𝗅16⠀⠀⠀₊⠀⠀⠀𝗂𝗌𝖿𝗉}}$
+${\textsf{\color{#70538a} 𝖾𝗅𝗂𝗌⠀⠀⠀⠀ₒᵣ⠀⠀⠀⠀𝗍𝗎𝗑⠀⠀⠀⠀𝗅𝗏𝗅16⠀⠀⠀₊⠀⠀⠀𝗂𝗌𝖿𝗉}}$
 </p>
 <p align="center">
 <a href=https://vixxie.atabook.org>新𝖻𝗈𝗈𝗄</a>⠀⠀⠀⠀⠀⠀<a href=https://rentry.co/tuxkitty>𝗋𝖾𝗇𝗍𝗋𝗒</a>⠀⠀⠀⠀⠀⠀<a href=https://en.pronouns.page/@tuxkitty>𝗉𝗋𝗇𝗌</a>
 </p>
 <p align="center">
-${\textsf{\color{#676767} 𝗐2𝗂 𝗉𝗋𝖾𝖿𝖾𝗋𝗋𝖾𝖽⠀⠀⠀﹒⠀⠀⠀𝖼*𝗁 𝖿𝗋𝖾𝖾𝗅𝗒}}$
+${\textsf{\color{#70538a} 𝗐2𝗂 𝗉𝗋𝖾𝖿𝖾𝗋𝗋𝖾𝖽⠀⠀⠀﹒⠀⠀⠀𝖼*𝗁 𝖿𝗋𝖾𝖾𝗅𝗒}}$
 </p>
 <p align="center">
 <div align="center">
