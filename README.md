@@ -1,18 +1,1 @@
 wip guys ok
-
-　　　　　　　　　　　　　　　[![Typing SVG](https://readme-typing-svg.demolab.com?font=Meow+Script&pause=3000&color=70538a&width=435&lines="+i've+done+the+math+,+there's+no+solution+.+.+.)](https://git.io/typing-svg)
-<p align="center">
-${\textsf{\color{#70538a} 𝖾𝗅𝗂𝗌⠀⠀⠀⠀ₒᵣ⠀⠀⠀⠀𝗍𝗎𝗑⠀⠀⠀⠀𝗅𝗏𝗅16⠀⠀⠀₊⠀⠀⠀𝗂𝗌𝖿𝗉}}$
-</p>
-<p align="center">
-<a href=https://vixxie.atabook.org>新𝖻𝗈𝗈𝗄</a>⠀⠀⠀⠀⠀⠀<a href=https://rentry.co/tuxkitty>𝗋𝖾𝗇𝗍𝗋𝗒</a>⠀⠀⠀⠀⠀⠀<a href=https://en.pronouns.page/@tuxkitty>𝗉𝗋𝗇𝗌</a>
-</p>
-<p align="center">
-${\textsf{\color{#70538a} 𝗐2𝗂 𝗉𝗋𝖾𝖿𝖾𝗋𝗋𝖾𝖽⠀⠀⠀﹒⠀⠀⠀𝖼*𝗁 𝖿𝗋𝖾𝖾𝗅𝗒}}$
-</p>
-<p align="center">
-<div align="center">
-
-![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=plastic&label=griefed+:&base=676767)
-
-　　　　　　　　　　　　[![Typing SVG](https://readme-typing-svg.demolab.com?font=Meow+Script&pause=3000&color=8C0000&width=435&lines=+⠀+⠀+⠀+⠀+⠀+⠀+⠀+⠀+.+.+.+we'll+never+last+.+")](https://git.io/typing-svg)
