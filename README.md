@@ -5,5 +5,5 @@
 </p>
 <p align="center"> 𝖾𝗅𝗂𝗌ㅤ𝗈𝗋ㅤ𝗍𝗎𝗑ㅤ𝄞₊ㅤ01̲6̲ㅤ𝖺𝗇𝗒 𝗉𝗋𝗈𝗇𝗈𝗎𝗇𝗌
 <p align="center"> 𝗂𝗌𝖿𝗉-𝗍ㅤ𝗂𝗇𝗍/𝖼*𝗁 𝖾𝗇𝖼ㅤ𝗂 𝖻𝗅𝗈𝖼𝗄 𝖿𝗋𝖾𝖾𝗅𝗒 ˖ . ݁ ໒ <br>
-<p align="center"> <a href=https://vixxie.atabook.org/>@新𝖻𝗈𝗈𝗄</a>⠀﹒⠀<a href=https://elisxne.carrd.co/>@𝖼𝖺𝗋𝗋𝖽</a>⠀﹒⠀<a href=https://en.pronouns.page/@tuxkitty>@𝗉𝗋onouns</a>⠀
+<p align="center"> <a href=https://vixxie.atabook.org/>@新𝖻𝗈𝗈𝗄</a>⠀﹒⠀<a href=https://tuxxie.carrd.co/>@𝖼𝖺𝗋𝗋𝖽</a>⠀﹒⠀<a href=https://en.pronouns.page/@tuxkitty>@𝗉𝗋onouns</a>⠀
  <br>
