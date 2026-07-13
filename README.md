@@ -6,21 +6,22 @@
 ㅤ
 ㅤ
 ㅤ
+ㅤ
 <p align="center"> <strong>𝖾𝗅𝗂</strong>𝗌ㅤ𝗈𝗋ㅤ𝗍𝗎𝗑ㅤ𝄞₊ㅤ01̲6̲ㅤ𝖺𝗇𝗒 𝗉𝗋𝗈𝗇𝗈𝗎𝗇𝗌
 <p align="center"> 𝗂𝗌𝖿𝗉-𝗍ㅤ𝗂𝗇𝗍/𝖼*𝗁 𝖾𝗇𝖼ㅤ𝗂 𝖻𝗅𝗈𝖼𝗄 𝖿𝗋𝖾𝖾𝗅𝗒 ˖ . ݁ ໒ <br>
-⠀
- ⠀
-
-
-
- ⠀
+ ㅤ
+ ㅤ
+ ㅤ
 <p align="center"> <a href=https://vixxie.atabook.org/>@新𝖻𝗈𝗈𝗄</a>⠀﹒⠀<a href=https://tuxxie.carrd.co/>@𝖼𝖺𝗋𝗋𝖽</a>⠀﹒⠀<a href=https://en.pronouns.page/@tuxkitty>@𝗉𝗋onouns</a>⠀
  <br>
- ⠀
- ⠀
+ㅤ
+ㅤ
+ㅤ
+ <p align="center">
+  <img src="https://files.catbox.moe/6fo6xl.png" width="95" height="auto" />
+  <img src="https://files.catbox.moe/nwc63i.png" width="95" height="auto" />
+</p>
 
 
 
- ⠀
-<p align="center"> "⠀𝖺𝗇𝖽 𝗂 𝗄𝗇𝗈𝗐, 𝗍𝗁𝖺𝗍 𝗂'𝗆 𝗇𝗈𝗍 𝗀𝗈𝗈𝖽.
-<p align="center"> 𝗂'𝗆 𝗇𝖾𝗏𝖾𝗋 𝗀𝗈𝗇𝗇𝖺 $${\color{#FEEAEA}𝗍𝗋𝖾𝖺𝗍}$$ $${\color{#FFD4D4}𝗒𝗈𝗎}$$ $${\color{#FFADAD}𝗅𝗂𝗄𝖾}$$ $${\color{#F77272}𝗂}$$ $${\color{#F03030}𝗌𝗁𝗈𝗎𝗅𝖽.}$$⠀"
+ <p align="center"><img src="https://files.catbox.moe/0x9tj2.png" width="250" height="auto" align="center"></img></a> <br>
