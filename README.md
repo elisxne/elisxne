@@ -22,5 +22,5 @@
 
 
  ⠀
-<p align="center"> "ㅤ𝖺𝗇𝖽 𝗂 𝗄𝗇𝗈𝗐, 𝗍𝗁𝖺𝗍 𝗂'𝗆 𝗇𝗈𝗍 𝗀𝗈𝗈𝖽.
-<p align="center"> 𝗂'𝗆 𝗇𝖾𝗏𝖾𝗋 𝗀𝗈𝗇𝗇𝖺 $${\color{#FEEAEA}𝗍𝗋𝖾𝖺𝗍}$$ $${\color{#FFD4D4}𝗒𝗈𝗎}$$ $${\color{#FFADAD}𝗅𝗂𝗄𝖾}$$ $${\color{#F77272}𝗂}$$ $${\color{#F03030}𝗌𝗁𝗈𝗎𝗅𝖽.}$$ㅤ"
+<p align="center"> "⠀𝖺𝗇𝖽 𝗂 𝗄𝗇𝗈𝗐, 𝗍𝗁𝖺𝗍 𝗂'𝗆 𝗇𝗈𝗍 𝗀𝗈𝗈𝖽.
+<p align="center"> 𝗂'𝗆 𝗇𝖾𝗏𝖾𝗋 𝗀𝗈𝗇𝗇𝖺 $${\color{#FEEAEA}𝗍𝗋𝖾𝖺𝗍}$$ $${\color{#FFD4D4}𝗒𝗈𝗎}$$ $${\color{#FFADAD}𝗅𝗂𝗄𝖾}$$ $${\color{#F77272}𝗂}$$ $${\color{#F03030}𝗌𝗁𝗈𝗎𝗅𝖽.}$$⠀"
