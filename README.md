@@ -1,4 +1,5 @@
-remaking omg
+ <p align="center"><img src="https://file.garden/amd45evg90hz5PtR/Untitled360_20260727104211.png" width="480" height="auto" align="center"></img></a> <br>
 
+</p>
 
-<p align="left"> <a href=https://vixxie.atabook.org/>@新𝖻𝗈𝗈𝗄</a>
+</p>
