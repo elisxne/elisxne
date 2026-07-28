@@ -1,5 +1,5 @@
 
- ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=flat&label=griefed+:&base=676767)
+ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=flat&label=smiles+:&base=676767)
  
  <p align="center"><img src="https://file.garden/amd45evg90hz5PtR/Untitled229_20260728120835.png" width="490" height="auto" align="center"></img></a> <br>
 
