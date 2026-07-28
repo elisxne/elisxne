@@ -1,3 +1,6 @@
+ <p align="center"><img src="https://file.garden/amd45evg90hz5PtR/Untitled366_20260728125855.png" width="490" height="auto" align="center"></img></a> <br>
+
+</p>
 
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=flat&label=smiles+:&base=676767)
  
@@ -11,3 +14,6 @@
 <p align="center"> ⌞ <a href=https://vixxie.atabook.org/>@新𝖻𝗈𝗈𝗄</a>⠀⠀𓈒⠀⠀<a href=https://tuxxie.carrd.co/>@𝖼𝖺𝗋𝗋𝖽</a>⠀⠀𓈒⠀⠀<a href=https://en.pronouns.page/@tuxkitty>@𝗉𝗋onouns</a> ⌝
  <br>
 
+ <p align="center"><img src="https://file.garden/amd45evg90hz5PtR/Untitled366_20260728125902.png" width="490" height="auto" align="center"></img></a> <br>
+
+</p>
