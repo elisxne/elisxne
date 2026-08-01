@@ -1,9 +1,9 @@
- <p align="left"><img src="https://file.garden/amd45evg90hz5PtR/Untitled366_20260728125855.png" width="490" height="auto" align="left"></img></a> <br>
+ <p align="center"><img src="https://file.garden/amd45evg90hz5PtR/Untitled366_20260728125855.png" width="490" height="auto" align="center"></img></a> <br>
 
 </p>
 
  
- <p align="left"><img src="https://file.garden/amd45evg90hz5PtR/Untitled229_20260728120835.png" width="490" height="auto" align="left"></img></a> <br>
+ <p align="center"><img src="https://file.garden/amd45evg90hz5PtR/Untitled229_20260728120835.png" width="490" height="auto" align="center"></img></a> <br>
 
 </p>
 
@@ -17,6 +17,6 @@
 <p align="center"> <a href=https://github.com/title-town>@𝗍𝗂𝗍𝗅𝖾-𝗍𝗈𝗐𝗇</a>⠀<a href=https://github.com/pt-walk-of-fame>@𝗉𝗍-𝗐𝖺𝗅𝗄-𝗈𝖿-𝖿𝖺𝗆𝖾</a>⠀<a href=https://github.com/pt-hall-of-media>@𝗉𝗍-𝗁𝖺𝗅𝗅-𝗈𝖿-𝗆𝖾𝖽𝗂𝖺</a>
  <br>
 
- <p align="left"><img src="https://file.garden/amd45evg90hz5PtR/Untitled366_20260728125902.png" width="490" height="auto" align="left"></img></a> <br>
+ <p align="center"><img src="https://file.garden/amd45evg90hz5PtR/Untitled366_20260728125902.png" width="490" height="auto" align="center"></img></a> <br>
 
 </p>
