@@ -14,9 +14,6 @@ fixing this better later
   <a href="https://en.pronouns.page/@tuxkitty" style="text-decoration: none; outline: none;"><img src="https://file.garden/amd45evg90hz5PtR/IMG_3063.png" width="130" alt="⸜(｡˃ ᵕ ˂ )⸝♡" style="border: none; outline: none;"></a>
 </p>
 
-<p align="center">
-  <a href="https://github.com/compliment-town" style="text-decoration: none; outline: none;"><img src="https://file.garden/amd45evg90hz5PtR/1177522491313365084.webp" width="50" alt="⸜(｡˃ ᵕ ˂ )⸝♡" style="border: none; outline: none;"></a>
-
 <p align="center"> 
   <img src="https://file.garden/amd45evg90hz5PtR/Untitled340_20260818163937.png" height="50">
 </p>
