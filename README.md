@@ -28,13 +28,13 @@
 <details>
   <summary>𝖺𝗐𝖾𝗌𝗈𝗆𝖾 𝗌𝖺𝗎𝖼𝗂𝖺𝗇𝗌 (..◜ᴗ◝..) ◀</summary>
 
-  [bunny](https://github.com/BunnyCoded)  [tea](https://github.com/PAlNTER)  [mark](https://github.com/S1ckBa5tard)  [mio](https://github.com/forgottenfeelings)  [syumi](https://github.com/syzxuz)<br>
-  [naiaa](https://github.com/AngelicDeceit)  [sylvie](https://github.com/kniferrific)  [collie](https://github.com/Int3rnetGh0st)  [sunny](https://github.com/sunnyfoggy)  [tes](https://github.com/piehiker)
+  <sub>[bunny](https://github.com/BunnyCoded)  [tea](https://github.com/PAlNTER)  [mark](https://github.com/S1ckBa5tard)  [mio](https://github.com/forgottenfeelings)  [syumi](https://github.com/syzxuz)<sub><br>
+  <sub>[naiaa](https://github.com/AngelicDeceit)  [sylvie](https://github.com/kniferrific)  [collie](https://github.com/Int3rnetGh0st)  [sunny](https://github.com/sunnyfoggy)  [tes](https://github.com/piehiker)<sub>
 </details>
 
 <div align="center">
 <details>
   <summary>𝖼𝗈𝗈𝗅𝖻𝖾𝖺𝗇𝗂𝖾𝗌 (✿ ◠ ᴗ ◠) ◀</summary>
 
-  [coy](https://github.com/nyanmare)  [snowdrop](https://github.com/ChokingRedRoses)  [vy](https://github.com/vysters)  [vixxen](https://github.com/VlXXEN)  [ze](https://github.com/4toz3)<br>
-  [verity](https://github.com/veritxy)  [wumble](https://github.com/tirgery123)  [flowery](https://github.com/weakflowers)  [aven](https://github.com/avenueq)
+  <sub>[coy](https://github.com/nyanmare)  [snowdrop](https://github.com/ChokingRedRoses)  [vy](https://github.com/vysters)  [vixxen](https://github.com/VlXXEN)  [ze](https://github.com/4toz3)<sub><br>
+  <sub>[verity](https://github.com/veritxy)  [wumble](https://github.com/tirgery123)  [flowery](https://github.com/weakflowers)  [aven](https://github.com/avenueq)<sub>
