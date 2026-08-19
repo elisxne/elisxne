@@ -1,3 +1,7 @@
+<div align="center">
+  
+![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=flat-square&label=(*ᴗ͈ˬᴗ͈)+:&base=676767)
+
 <p align="center">
   <img src="https://file.garden/amd45evg90hz5PtR/Untitled336_20260816130752.png" height="267">
 </p>
