@@ -2,8 +2,10 @@
   
 ![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=flat-square&label=(*ᴗ͈ˬᴗ͈)+:&base=676767)
 
-<p align="center">
-  <img src="https://file.garden/amd45evg90hz5PtR/IMG_3188.png" height="280">
+ <p align="left"><img src="https://file.garden/amd45evg90hz5PtR/IMG_3188.png" width="480" height="auto" align="left"></img></a> <br>
+
+</p>
+
 </p>
 
 <div align="center">
