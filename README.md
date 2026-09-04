@@ -2,7 +2,7 @@
   
 ![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=flat-square&label=(*ᴗ͈ˬᴗ͈)+:&base=676767)
 
- <p align="left"><img src="https://file.garden/amd45evg90hz5PtR/Untitled376_20260903200024.png" width="430" height="auto" align="left"></img></a> <br>
+ <p align="left"><img src="https://file.garden/amd45evg90hz5PtR/Untitled378_20260904184515.png" width="460" height="auto" align="left"></img></a> <br>
 
 </p>
 
