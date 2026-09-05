@@ -39,6 +39,6 @@
   <summary>𝖼𝗈𝗈𝗅𝖻𝖾𝖺𝗇𝗂𝖾𝗌 (✿ ◠ ᴗ ◠) ੭</summary>
 
   <sub>[coy](https://github.com/nyanmare)  [snowdrop](https://github.com/ChokingRedRoses)  [vy](https://github.com/vysters)  [vixxen](https://github.com/VlXXEN)  [ze](https://github.com/4toz3)<sub><br>
-  <sub>[verity](https://github.com/veritxy)  [wumble](https://github.com/tirgery123)  [flowery](https://github.com/weakflowers)  [aven](https://github.com/avenueq)<sub><br>
-  <sub>[lyric](https://github.com/sugarsite)  [crush](https://github.com/crushdow)  [thorne](https://github.com/zombdisaster)  [whisk](https://github.com/WhiskersDream)  [cherie](https://github.com/kruItepes)<sub><br>
+  <sub>[verity](https://github.com/veritxy)  [wumble](https://github.com/tirgery123)  [flowery](https://github.com/weakflowers)  [aven](https://github.com/avenueq)  [whisk](https://github.com/WhiskersDream)<sub><br>
+  <sub>[lyric](https://github.com/sugarsite)  [crush](https://github.com/crushdow)  [thorne](https://github.com/zombdisaster)  [cherie](https://github.com/kruItepes)<sub><br>
   <sub>[oresha](https://github.com/smokebomb)  [yvo](https://github.com/yvoisen)<sub>
