@@ -3,7 +3,7 @@ redoing this layout sometime im so lazy rn
   
 ![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=flat-square&label=(*ᴗ͈ˬᴗ͈)+:&base=676767)
 
- <p align="left"><img src="https://file.garden/amd45evg90hz5PtR/Untitled346_20261011192935.png" width="560" height="auto" align="left"></img></a> <br>
+ <p align="left"><img src="https://file.garden/amd45evg90hz5PtR/Untitled346_20261011192935.png" width="520" height="auto" align="left"></img></a> <br>
  
 </p>
 
