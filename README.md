@@ -5,7 +5,6 @@ redoing this layout sometime im so lazy rn
 
  <p align="left"><img src="https://file.garden/amd45evg90hz5PtR/IMG_3305.jpeg" width="460" height="auto" align="left"></img></a> <br>
  
-
 </p>
 
 </p>
