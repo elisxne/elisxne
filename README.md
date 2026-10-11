@@ -3,7 +3,7 @@ redoing this layout sometime im so lazy rn
   
 ![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=flat-square&label=(*ᴗ͈ˬᴗ͈)+:&base=676767)
 
- <p align="left"><img src="https://file.garden/amd45evg90hz5PtR/Untitled346_20261011192935.png" width="460" height="auto" align="left"></img></a> <br>
+ <p align="left"><img src="https://file.garden/amd45evg90hz5PtR/Untitled346_20261011192935.png" width="560" height="auto" align="left"></img></a> <br>
  
 </p>
 
@@ -22,9 +22,8 @@ redoing this layout sometime im so lazy rn
 <br>
 
 <p align="center">
-  <a href="https://vixxie.atabook.org/">新𝖻𝗈𝗈𝗄</a>   ‿‿   <a href="https://tuxxie.carrd.co/">𝖼𝖺𝗋𝗋𝖽</a>ㅤ
-</p>
-
+  <a href="https://vixxie.atabook.org/" style="text-decoration: none; outline: none;"><img src="https://file.garden/amd45evg90hz5PtR/IMG_3309.png" width="130" alt="⸜(｡˃ ᵕ ˂ )⸝♡" style="border: none; outline: none;"></a>   
+  <a href="https://tuxxie.carrd.co/" style="text-decoration: none; outline: none;"><img src="https://file.garden/amd45evg90hz5PtR/IMG_3310.png" width="130" alt="⸜(｡˃ ᵕ ˂ )⸝♡" style="border: none; outline: none;"></a> ⠀ 
 <br>
 
 <div align="center">
