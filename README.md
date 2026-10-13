@@ -27,17 +27,8 @@
 
 <div align="center">
 <details>
-  <summary>𝖺𝗐𝖾𝗌𝗈𝗆𝖾 𝗌𝖺𝗎𝖼𝗂𝖺𝗇𝗌 (..◜ᴗ◝..) ੭</summary>
+  <summary>𝖺𝗐𝖾𝗌𝗈𝗆𝖾 𝗌𝖺𝗎𝖼𝗂𝖺𝗇𝗌 (..◜ᴗ◝..) ♡</summary>
 
-  <sub>[bunny](https://github.com/BunnyCoded)  [tea](https://github.com/PAlNTER)  [mark](https://github.com/S1ckBa5tard)  [mio](https://github.com/forgottenfeelings)  [syumi](https://github.com/syzxuz)<sub><br>
-  <sub>[naiaa](https://github.com/AngelicDeceit)  [sylvie](https://github.com/kniferrific)  [collie](https://github.com/Int3rnetGh0st)  [sunny](https://github.com/sunnyfoggy)  [tes](https://github.com/piehiker)<sub>
+  <sub>[bunny](https://github.com/BunnyCoded)  [tea](https://github.com/PAlNTER)  [mark](https://github.com/S1ckBa5tard)  [mio](https://github.com/forgottenfeelings)  [syumi](https://github.com/syzxuz)  [whisk](https://github.com/WhiskersDream)<sub><br>
+  <sub>[naiaa](https://github.com/AngelicDeceit)  [sylvie](https://github.com/kniferrific)  [viny](https://github.com/Blood-Lusting)  [sunny](https://github.com/sunnyfoggy)  [tes](https://github.com/piehiker)  [aven](https://github.com/avenueq)  [nyan](https://github.com/nyanmare)  [yvo](https://github.com/yvoisen)<sub>
 </details>
-
-<div align="center">
-<details>
-  <summary>𝖼𝗈𝗈𝗅𝖻𝖾𝖺𝗇𝗂𝖾𝗌 (✿ ◠ ᴗ ◠) ੭</summary>
-
-  <sub>[nyan](https://github.com/nyanmare)  [snowdrop](https://github.com/ChokingRedRoses)  [vy](https://github.com/vysters)  [whisk](https://github.com/WhiskersDream)  [ze](https://github.com/4toz3)<sub><br>
-  <sub>[verity](https://github.com/groxity)  [wumble](https://github.com/tirgery123)  [flowery](https://github.com/weakflowers)  [aven](https://github.com/avenueq)  <sub><br>
-  <sub>[lyric](https://github.com/sugarsite)  [crush](https://github.com/crushdow)  [thorne](https://github.com/zombdisaster)  [cherie](https://github.com/kruItepes)<sub><br>
-  <sub>[oresha](https://github.com/smokebomb)  [yvo](https://github.com/yvoisen)  [milo](https://github.com/emariyaoi)<sub>
